@@ -1,0 +1,1 @@
+# K-utnia-o-chaunk-i-inteligentny-dom.
